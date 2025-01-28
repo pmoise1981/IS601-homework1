@@ -2,4 +2,4 @@
 
 ## Learning
 
-I am enjoying the course.
+I will pass the course.
